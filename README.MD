@@ -1,2 +1,2 @@
-Cool ways of making hot tasty tea!
-Follow the recipe exactly and have a cup of heavenly tea!
+Cool ways to make a cup of hot tea!
+Follow the recipe exactly and sip a cup of heavenly tea!
